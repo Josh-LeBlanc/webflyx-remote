@@ -1,0 +1,5 @@
+* "May thy knife chip and shatter"
+* "May thy knife chip and shatter"
+* "A Grat Man Doesn't Seek To Lead. He's Called To It."
+* An Animcal Caught In A Trap Will Graw Off Its Own Leg To Escape. What Will You Do?"
+* "When Is A Gift Not A Gift?"
